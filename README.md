@@ -3,7 +3,6 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=hdcik&label=Profile%20views&color=0e75b6&style=flat" alt="hdcik" /> </p>
 
-- 📫 How to reach me **indikakumaraofficial1@gmail.com**
 
 - ⚡ Fun fact **Call me as Chami**
 
